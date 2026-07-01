@@ -1,1 +1,1 @@
-# Memoria---Memorization-Companion
+# Memoria
